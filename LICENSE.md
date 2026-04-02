@@ -1,4 +1,4 @@
-
+Free pro script-ware executor | god + esp brings you the best free scripts for script-ware executor, featuring god and esp. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
